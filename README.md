@@ -12,3 +12,11 @@ Dal 20/07/92 ingegnere, libero professionista, nel campo delle costruzioni in ce
 ## Dati ##
 
 Sito Web: [francesco politi ingegnere](https://www.cittanovaonline.it/francescopoliti) , [Pagina Facebook](https://www.facebook.com/francescopoliti.ingegnere)
+<BR><BR>
+_______
+<BR>
+
+
+![Image text](http://www.cittanovaonline.it/repository/logo_studio_sfondo_bianco_xiaomi.png)
+
+<BR><BR>
