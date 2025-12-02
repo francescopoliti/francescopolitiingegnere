@@ -1,6 +1,6 @@
 # francescopolitiingegnere
 
-# STUDIO DIINGEGNERIA. # 
+# STUDIO DIINGEGNERIA # 
 
 ## Ubicazione ##
 
@@ -11,4 +11,4 @@ Dal 20/07/92 ingegnere, libero professionista, nel campo delle costruzioni in ce
   
 ## Dati ##
 
-Sito Web: [francesco politi ingegnere](https://www.cittanovaonline.it/francescopoliti) , [Pagina Facebook](https://www.cittanovaonline.it/francescopoliti)
+Sito Web: [francesco politi ingegnere](https://www.cittanovaonline.it/francescopoliti) , [Pagina Facebook](https://www.facebook.com/francescopoliti.ingegnere)
